@@ -1,4 +1,4 @@
-# Tshijuka-initiative (education-second-hope-for-refugees( non profit)-and-(La solidarite:healing-customers-first-pharmacy))
+# Tshijuka-initiative (education-second-hope-for-refugees( non profit)-and-(La solidarite:healing-customers-first-pharmacy (Profit))
 
 Tresor Ndala Buzangu is a driven leader whose journey began at the age of 11, fueled by a personal commitment to justice and change. Born in DRC, Tresor’s leadership aspirations were sparked when his father, a high-ranking soldier in the Congolese army, was sent to war leaving his mother unhappy. Determined to understand leadership and its power, Tresor vowed to one day hold that responsibility himself and bring back his father to make his mother happy.
 
