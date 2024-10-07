@@ -12,18 +12,18 @@ Research paper: https://github.com/Tresorndala/AI-adaptive-tutor-refugee-in-afri
 
 
 
-Please find the projects we are working on here:
+Please find the projects that are 2 non profits based and 1 profit based :
 
 
 
-1.https://github.com/Tresorndala/AI-adaptive-tutor-refugee-in-africa
+1.Project 1(non profit): https://github.com/Tresorndala/AI-adaptive-tutor-refugee-in-africa
 
 
 
-2.https://github.com/Tresorndala/AI-Powered-refugee-Document-Retrieval-and-Verification-System
+2.Project 2(non profit) :https://github.com/Tresorndala/AI-Powered-refugee-Document-Retrieval-and-Verification-System
 
 
 
 
-3.https://github.com/Tresorndala/La-solidarity-Healing-first-pharmacy-
+3.Project 3 (Profit) :https://github.com/Tresorndala/La-solidarity-Healing-first-pharmacy-
 
