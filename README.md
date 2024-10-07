@@ -8,7 +8,7 @@ angry seeing only 10 % of children of soldiers in Drcongo and only 5% of refugee
 Research paper: https://github.com/Tresorndala/AI-adaptive-tutor-refugee-in-africa/blob/main/Article%20research%20refugee%20education.docx
 
 Please find the projects we are working on here:
-1.
+1.https://github.com/Tresorndala/AI-adaptive-tutor-refugee-in-africa
 2.
 3.
 4.
